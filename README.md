@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **arockiashantha9@gmail.com**
 
-- 📄 Know about my experiences [Resumme_SE!](Resumme_SE!)
+- 📄 Know about my experiences [AROCKIA SHANTHA A_Resume](AROCKIA SHANTHA A_Resume)
 
 - ⚡ Fun fact **When I'm not coding, you'll probably find me sketching, creating pixel art, or watching movies!**
 
